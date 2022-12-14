@@ -1,1 +1,1 @@
-# Notes
+For all my study notes
